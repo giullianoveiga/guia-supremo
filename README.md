@@ -1,6 +1,6 @@
 # O Guia Supremo do Poder, Influência e Estratégia
 
-> **Oferta especial:** Domine as regras invisíveis do jogo do poder e transforme sua vida por apenas **R$4,99** (de R$170,00).
+> **Oferta especial:** Domine as regras invisíveis do jogo do poder e transforme sua vida por apenas **R$7,99** (de R$170,00).
 
 ## Sobre o produto
 
